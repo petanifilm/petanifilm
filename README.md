@@ -4,8 +4,11 @@ Nonton film dan series terbaru dan terlengkap dengan subtitle bahasa Indonesia s
 
 PETANI FILM adalah sebuah situs atau website khusus tempat untuk nonton movie/series streaming secara online serta download film paling lengkap keluaran terbaru dari luar negeri dan dalam negeri Tentunya gratis dan lengkap dengan subtitle indonesia.
 
+### ❤️ INFO DOMAIN PETANI FILM  
+- 🔗 [https://s.id/petanifilm](https://s.id/petanifilm)
+- 
 ### ❤️ LINK WEB PETANI FILM  
-- 🔗 [https://petanifilm.online](https://petanifilm.online)
+- 🔗 [https://popot.top](https://popot.top)
 
 ### 😊 LINK GRUP  
 - 🔗 [Grup Telegram](https://t.me/petanifilmofficial)
